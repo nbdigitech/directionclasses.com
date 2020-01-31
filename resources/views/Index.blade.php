@@ -42,7 +42,7 @@ C-wing Shop No. 18 , Golden Tower , Veena Nagar Mulund, Mumbai (M.H).",
    }
 }
 </script>
-<title>Bests coaching institute|Private coaching |home tutor in mumbai|Online Practice Test papers</title>
+<title>Best coaching institute|Private coaching |home tutor in mumbai|Online Practice Test papers</title>
   <meta name="description" content="we are here to give you the best showing administration for IGCSE, CBSE, ICSE, IBDP, HSC in your general vicinity. We additionally give you online test series, E-book service. Our instructing sessions are fun learning and inventive, consolidating every one of these techniques and rationale's we manufacture central ideas. Our student batch sizes are fitting with the goal that we can actually screen every single youngster's execution." />
   <meta name="keywords" content="IGCSE,Private coaching,home tutor,online practice paper,download Ebook,Live classes,igcse maths past papers,physics past papers,Biology past papers,igcse syllabus,cambridge igcse,jee coaching classes,cbse syllabus,icse syllabus for class 10,ibdp,icse online learning,test series for icse class 10">
    <meta name="canonical" content="https://www.directionclasses.com/">
